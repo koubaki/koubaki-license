@@ -1,1 +1,1 @@
-LICENSE applies to the document itself.
+LICENSE applies to the documents themselves.
