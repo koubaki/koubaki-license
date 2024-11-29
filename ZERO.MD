@@ -1,0 +1,1 @@
+- Everyone that has recieved a copy of the content may use, copy, alter or otherwise interact with the software as wished, without any limitations or requirements, but no warranty or liability is included.
